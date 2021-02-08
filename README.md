@@ -1,2 +1,2 @@
 # camachojosh420.github.io
-The website for Web Design for all
+The website for Web Design for Everyone
